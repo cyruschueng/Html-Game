@@ -1,0 +1,1 @@
+Free Lonely Asylum Html arcade game.

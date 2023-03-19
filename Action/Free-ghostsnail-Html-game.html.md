@@ -1,0 +1,1 @@
+Free GhostSnail Html arcade game.

@@ -1,0 +1,1 @@
+Free The Cursed Palace Html arcade game.

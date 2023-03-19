@@ -1,0 +1,1 @@
+Free SpinMan Html arcade game.

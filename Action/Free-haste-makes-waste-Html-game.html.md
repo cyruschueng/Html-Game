@@ -1,0 +1,1 @@
+Free Haste Makes Waste Html arcade game.

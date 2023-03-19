@@ -1,0 +1,1 @@
+Free Treasure Rush Html arcade game.

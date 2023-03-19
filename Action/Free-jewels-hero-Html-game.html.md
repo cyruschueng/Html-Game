@@ -1,0 +1,1 @@
+Free Jewels Hero Html arcade game.

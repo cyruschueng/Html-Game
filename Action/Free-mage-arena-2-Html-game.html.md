@@ -1,0 +1,1 @@
+Free Mage Arena 2 Html arcade game.

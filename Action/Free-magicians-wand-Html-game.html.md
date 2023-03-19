@@ -1,0 +1,1 @@
+Free Magician's Wand Html arcade game.

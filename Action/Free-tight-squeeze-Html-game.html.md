@@ -1,0 +1,1 @@
+Free Tight Squeeze Html arcade game.

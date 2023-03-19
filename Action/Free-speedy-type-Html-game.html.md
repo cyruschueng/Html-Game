@@ -1,0 +1,1 @@
+Free Speedy Type Html arcade game.

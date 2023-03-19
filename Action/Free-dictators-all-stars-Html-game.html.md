@@ -1,0 +1,1 @@
+Free Dictators All stars Html arcade game.

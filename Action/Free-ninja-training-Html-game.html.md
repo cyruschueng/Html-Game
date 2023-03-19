@@ -1,0 +1,1 @@
+Free Ninja Training Html arcade game.

@@ -1,0 +1,1 @@
+Free Dino Run Html arcade game.

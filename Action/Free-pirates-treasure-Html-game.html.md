@@ -1,0 +1,1 @@
+Free Pirates Treasure Html arcade game.

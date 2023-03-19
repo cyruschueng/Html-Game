@@ -1,0 +1,1 @@
+Free Super Slap Stars Html arcade game.

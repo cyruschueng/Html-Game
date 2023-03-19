@@ -1,0 +1,1 @@
+Free Ninja Escape Html arcade game.

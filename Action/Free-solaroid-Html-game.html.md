@@ -1,0 +1,1 @@
+Free Solaroid Html arcade game.

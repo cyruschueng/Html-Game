@@ -1,0 +1,1 @@
+Free Ninja and Blind Girl 2 Html arcade game.

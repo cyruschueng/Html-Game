@@ -1,0 +1,1 @@
+Free 60 Second Labyrinth Html arcade game.

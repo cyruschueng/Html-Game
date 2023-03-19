@@ -1,0 +1,1 @@
+Free Squares Html arcade game.

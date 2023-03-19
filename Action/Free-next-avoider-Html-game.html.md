@@ -1,0 +1,1 @@
+Free Next Avoider Html arcade game.

@@ -1,0 +1,1 @@
+Free Plamia Iarosti (Flames of Fury) Html arcade game.

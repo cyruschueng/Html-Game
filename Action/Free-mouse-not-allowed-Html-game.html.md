@@ -1,0 +1,1 @@
+Free Mouse Not Allowed Html arcade game.

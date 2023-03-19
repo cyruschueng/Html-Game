@@ -1,0 +1,1 @@
+Free Scorched Cosmos Html arcade game.

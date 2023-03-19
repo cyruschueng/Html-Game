@@ -1,0 +1,1 @@
+Free Wizard & Wizard Html arcade game.

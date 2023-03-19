@@ -1,0 +1,1 @@
+Free 60 Seconds to Heaven or Hell Html arcade game.

@@ -1,0 +1,1 @@
+Free Strike of Fury Html arcade game.

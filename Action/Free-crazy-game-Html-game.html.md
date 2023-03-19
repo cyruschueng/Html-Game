@@ -1,0 +1,1 @@
+Free Crazy Game Html arcade game.

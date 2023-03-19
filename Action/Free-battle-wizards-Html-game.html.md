@@ -1,0 +1,1 @@
+Free Battle Wizards Html arcade game.

@@ -1,0 +1,1 @@
+Free Wizard Wars Html arcade game.

@@ -1,0 +1,1 @@
+Free Sqwolling Capsule Html arcade game.

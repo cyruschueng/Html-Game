@@ -1,0 +1,1 @@
+Free Candy Wheel Html arcade game.

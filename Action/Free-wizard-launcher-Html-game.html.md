@@ -1,0 +1,1 @@
+Free Wizard Launcher Html arcade game.

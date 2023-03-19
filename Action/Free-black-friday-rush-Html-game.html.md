@@ -1,0 +1,1 @@
+Free Black Friday Rush Html arcade game.

@@ -1,0 +1,1 @@
+Free Loot Catcher (Chinese Version) Html arcade game.

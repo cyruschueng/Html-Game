@@ -1,0 +1,1 @@
+Free Squicnik Squabble Html arcade game.

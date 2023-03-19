@@ -1,0 +1,1 @@
+Free spite the wizard Html arcade game.

@@ -1,0 +1,1 @@
+Free Daily Battle: The Mystery of Ixtab Html arcade game.

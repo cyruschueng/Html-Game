@@ -1,0 +1,1 @@
+Free Scariest Maze Game 2 Html arcade game.

@@ -1,0 +1,1 @@
+Free Scarcity Tales Html arcade game.

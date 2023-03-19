@@ -1,0 +1,1 @@
+Free Scary Bone Collector Html arcade game.

@@ -1,0 +1,1 @@
+Free Bricks Squasher 2 Html arcade game.

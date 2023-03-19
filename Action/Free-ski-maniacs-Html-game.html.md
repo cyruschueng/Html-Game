@@ -1,0 +1,1 @@
+Free Ski Maniacs Html arcade game.

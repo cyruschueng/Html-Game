@@ -1,0 +1,1 @@
+Free Follow the Path Html arcade game.

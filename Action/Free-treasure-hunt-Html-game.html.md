@@ -1,0 +1,1 @@
+Free Treasure Hunt Html arcade game.

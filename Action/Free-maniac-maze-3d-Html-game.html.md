@@ -1,0 +1,1 @@
+Free Maniac Maze 3D Html arcade game.

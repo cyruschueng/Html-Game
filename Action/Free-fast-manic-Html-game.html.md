@@ -1,0 +1,1 @@
+Free FAST MANIC Html arcade game.

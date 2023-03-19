@@ -1,0 +1,1 @@
+Free Ambulance Rush Html arcade game.

@@ -1,0 +1,1 @@
+Free spinner Html arcade game.

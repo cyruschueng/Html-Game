@@ -1,0 +1,1 @@
+Free Crazy Teacher Html arcade game.

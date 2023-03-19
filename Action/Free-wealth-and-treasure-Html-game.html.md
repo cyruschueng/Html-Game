@@ -1,0 +1,1 @@
+Free Wealth And Treasure Html arcade game.

@@ -1,0 +1,1 @@
+Free the maze temple Html arcade game.

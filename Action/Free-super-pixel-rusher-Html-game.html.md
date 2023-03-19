@@ -1,0 +1,1 @@
+Free Super Pixel Rusher Html arcade game.

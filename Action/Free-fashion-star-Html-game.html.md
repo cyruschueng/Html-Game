@@ -1,0 +1,1 @@
+Free Fashion Star Html arcade game.

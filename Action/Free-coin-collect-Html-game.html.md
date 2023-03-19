@@ -1,0 +1,1 @@
+Free Coin Collect Html arcade game.

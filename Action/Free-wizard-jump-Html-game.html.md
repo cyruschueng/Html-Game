@@ -1,0 +1,1 @@
+Free Wizard Jump Html arcade game.

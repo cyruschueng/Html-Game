@@ -1,0 +1,1 @@
+Free Chasseur de Monstres (Beast Hunter) Html arcade game.

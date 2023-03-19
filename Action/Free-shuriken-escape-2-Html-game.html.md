@@ -1,0 +1,1 @@
+Free Shuriken Escape 2 Html arcade game.

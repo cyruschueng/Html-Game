@@ -1,0 +1,1 @@
+Free Sticki; First Tale Html arcade game.

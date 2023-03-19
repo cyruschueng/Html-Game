@@ -1,0 +1,1 @@
+Free Just Another Platformer Html arcade game.
